@@ -1,0 +1,1 @@
+My name is kaffy,i am a graphic and product designer.My ability to blend creativity with a deep understanding of user and business goals is what distinguishes me as a designer. I possess a knowledge of design principles and I'm highly proficient in tools like figma,illustrator,photoshop and indesign.
